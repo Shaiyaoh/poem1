@@ -3,7 +3,7 @@ By shaiyaoh - poem1
 
 "wide eyes appaled,
 walking by like a zombie, 
-eyes filled eith poison, 
+eyes filled with poison, 
 let the soul see clean, 
 
 above glass citadels--
